@@ -1,1 +1,2 @@
-Get comfy
+Discord: .tsunbaki
+Reddit: -Tsubaki
